@@ -1,0 +1,1 @@
+# mineracao-permanencia-prolongada
